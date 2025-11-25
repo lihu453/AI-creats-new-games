@@ -1,2 +1,3 @@
 # AI-creats-new-games
-All is AI created
+All is AI with me created
+*it has lots of different games*
